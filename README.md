@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @Charcharkid pepole call me char so you can call me that too!
+- 👀 I’m interested in roblox, discord, discord,you :>, my bf, yt, and me c:
+- 🌱 I’m currently learning my accents and japanese
+- 💞️ I’m looking to collaborate on nothing :>
+- 📫 How to reach me on discord- ~`𝘼𝙙𝙙𝙞`~ #2762 Spotify- Charli & backup- Char <3
+- 💞️ Im looking for some new friends cause im new!
+- 💞️ My style is like cottagecore and softgirl mixed togther
+- 💞️ I have my dms open sometimes but in sometimes in roadtirps i leave it at home or bring it!
